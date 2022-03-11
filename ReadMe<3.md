@@ -1,4 +1,4 @@
-- 🌼 Hi, I’m @12BlueBerry12
+- 🌼 Hi, I’m BlueBerry
 - ✨ I’m interested in Changed special edition <3
 - 📚 I’m currently learning How to make mods for gacha club!
 - 💞️ I’m looking to collaborate on Nothing
